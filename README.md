@@ -6,6 +6,4 @@ https://drive.google.com/file/d/1LR-W_gsQ6oQaPNggrlKPB60X9I7WiR9l/view?usp=shari
 
 Link to Wisdom of Crowd.mp4
 https://youtu.be/TRUQ-fiahHo
-
-Download Link:
-https://drive.google.com/file/d/1OhXiDGdCAxiOpwXzXUaeej0u4Bw74Ahu/view?usp=sharing
+(Download Link:https://drive.google.com/file/d/1OhXiDGdCAxiOpwXzXUaeej0u4Bw74Ahu/view?usp=sharing)
